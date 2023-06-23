@@ -21,9 +21,9 @@
 
 ![image](https://github.com/vanpttv/infusion_pumps/assets/95868397/24383022-7799-4bb8-a713-c52667e011f2)
 
-![image](https://github.com/vanpttv/infusion_pumps/assets/95868397/1c6ceaa8-6418-4389-9063-df4d7fe5fe5b)
-
 ![image](https://github.com/vanpttv/infusion_pumps/assets/95868397/7a368a06-3c0e-4b8f-a171-982857484152)
+
+![image](https://github.com/vanpttv/infusion_pumps/assets/95868397/1c6ceaa8-6418-4389-9063-df4d7fe5fe5b)
 
 ![image](https://github.com/vanpttv/infusion_pumps/assets/95868397/0a1dbdcc-dc1b-4d83-96c8-4e0991b88c83)
 
